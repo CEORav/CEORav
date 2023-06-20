@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @CEORav
 - 👀 I’m interested in creating animation cartoon and visuals.
 - 🌱 I’m currently learning soft skills and introduction to tech.
-- 💞️ I’m looking to collaborate on projecgts dealing with creating websites and apps.
+- 💞️ I’m looking to collaborate on projects dealing with creating websites and apps.
 - 📫 How to reach me is by email at vyntiousbrandservices@outlook.com
 
 <!---
